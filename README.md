@@ -1,1 +1,2 @@
-tenza i
+tenza Ai
+powe Bi qjuestions
